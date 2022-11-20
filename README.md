@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lion-Java
+- 👀 I’m interested in AI Development
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on Personal 
+- 📫 How to reach me Insta DM shryan_liongamer
